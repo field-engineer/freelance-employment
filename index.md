@@ -45,6 +45,7 @@ Enemy: Pride, believe that you are good and that you already know everything.
 What absurd things have I seen at this level?
 
 Those who predict that this or that social network is a success or a failure based on banal things such as: if your circle of close friends uses a certain network or not.
+
 3. Tips for [Contingent Employment](https://www.fieldengineer.com/blogs/what-is-contingent-employment/) Networking experts
 
 If you've done a good job, you can be considered influencer by a lot of people, but do not let this go to your head.
