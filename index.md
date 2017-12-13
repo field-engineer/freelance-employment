@@ -36,17 +36,13 @@ More coherence, remember that you own what is silent and slave of what is said.
 Are you wrong? It does not matter, talk about that too.
 Contrast what has served you with what you have not, talk about it freely
 Beware of what you offer or how you "sell", social networks change every time and what you knew yesterday may be obsolete today, such as Facebook Ads.
-If your experience with the blog has been satisfactory, seek to collaborate on other blogs (write us a private message on Twitter if you wish to write on the Workana blog!). If you feel that you still have to develop your writing skills, continue with yours.
-You must already lean towards a specific topic to gain recognition and not be a "todero".
-Ally: feedback, contrasting opinions about your work can help you improve.
-
-Enemy: Pride, believe that you are good and that you already know everything.
+If your experience with the blog has been satisfactory, seek to collaborate on other blogs. If you feel that you still have to develop your writing skills, continue with yours.
 
 What absurd things have I seen at this level?
 
 Those who predict that this or that social network is a success or a failure based on banal things such as: if your circle of close friends uses a certain network or not.
 
-3. Tips for [Contingent Employment](https://www.fieldengineer.com/blogs/what-is-contingent-employment/) Networking experts
+3.Tips for [Contingent Employment](https://www.fieldengineer.com/blogs/what-is-contingent-employment/) Networking experts
 
 If you've done a good job, you can be considered influencer by a lot of people, but do not let this go to your head.
 At this level, it is necessary to be more careful with light opinions on sensitive issues.
